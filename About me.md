@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kpOSCAR2001
 - 👀 I’m an OTAKU
-- 🌱 I’m pursiving ECE
+- 🌱 I’m pursuing ECE
 - 💞️ I’m looking to collaborate with every otaku
 - 📫 Call me OSCAR
 
